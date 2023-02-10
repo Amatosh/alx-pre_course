@@ -1,1 +1,1 @@
-final phase of my playing around git 
+a stitch in time 
